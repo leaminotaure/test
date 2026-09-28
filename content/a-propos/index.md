@@ -8,7 +8,7 @@ La bibliothèque des Acacias a ouvert ses portes en 1974 dans une ancienne écol
 
 Elle fait partie du réseau des bibliothèques municipales : votre carte d'inscription est valable dans toutes les bibliothèques du réseau.
 
-## L'équipe
+## L'équipe de choc
 
 Six personnes vous accueillent :
 
